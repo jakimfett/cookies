@@ -1,8 +1,8 @@
 Double Crunch Cookies
-===============================
+======================
 original recipe from Great Aunt Betty (Powell Roberts) Smith.        
 
-Mix tu uniform consistancy:
+Mix to uniform consistancy:
 1/2 cup softened/melted coconut oil (can substitute 1/2 cup butter)
 1/2 cup white sugar
 1/2 cup brown sugar                                 
