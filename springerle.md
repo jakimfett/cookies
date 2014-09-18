@@ -16,7 +16,7 @@ SPRINGERLE
 ##Directions:##
 1. Stir all ingredients together into a dough
 2. Chill awhile
-3. Roll out with [springerle rolling pin](www.amazon.com/Norpro-3083-Springerle-Rolling-Pin/dp/B0000VLY7W/) *roll cookies 1/2 inch thick because roller will thin out the dough also)
+3. Roll out with [springerle rolling pin](www.amazon.com/Norpro-3083-Springerle-Rolling-Pin/dp/B0000VLY7W/) *roll cookies 1/2 inch thick because roller will thin out the dough also)*
 4. Let set overnight
 
 ##Bake:##
