@@ -6,7 +6,7 @@ SPRINGERLE
 
 ##Ingredients:##
 
-* 4 **eggs** (beat for 15 minutes, then add 2 cups sugar slowly while beating 15 minutes more)
+* 4 **eggs** (beat for 15 minutes, then add 2 cups **sugar** slowly while beating 15 minutes more)
 * 1 jar **anise oil**
 * 1 tablespoon **butter**
 * 1 tablespoon **honey**
