@@ -1,5 +1,8 @@
-PEANUT BUTTER COOKIES
-=====================
+JELLY-LESS PBnJ COOKIES
+=======================
+
+Original recipe by Grandma Grace Wedell
+---------------------------------------
 
 ##Ingredients:##
 

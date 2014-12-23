@@ -1,5 +1,8 @@
-CHOCOLATE CHIP COOKIES
+GRACE'S CHOCOLATE CHIP COOKIES
 ======================
+
+Original recipe by Grandma Grace Wedell
+---------------------------------------
 
 ##Ingredients:##
 
