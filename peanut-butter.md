@@ -1,4 +1,4 @@
-JELLY-LESS PBnJ COOKIES
+Non-Jelly PBnJ Cookies
 =======================
 
 Original recipe by Grandma Grace Wedell
