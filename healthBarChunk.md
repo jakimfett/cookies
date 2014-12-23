@@ -1,4 +1,4 @@
-HEATH BAR COOKIES
+Health Bar Chunk Cookies
 =================
 
 ##Ingredients:##
