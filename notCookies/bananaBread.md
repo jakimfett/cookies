@@ -3,24 +3,24 @@ Banana Bread
 
 original recipe from Great Grandma Alma Leona (Clever) Roberts  
 
-Combine:  
+**Combine:**  
 3/4 cup sugar  
 1/4 cup coconut oil (can substitute 1/4 cup butter)  
 Mix thoroughly, until the mixture is of an even consistancy  
 
-Mix in:
+**Mix in:**
 1 egg  
 3 tablespoons sour milk (1 teaspoon vinegar in a container, then add enough milk to make 3 tablespoons total)  
 1.5 cups mashed banana  
 Mix to an even consistancy  
 
-Mix in:  
+**Mix in:**  
 2 cups flour  
 1/2 teaspoon baking powder  
 1/2 teaspoon baking soda  
 1/4 tsp salt  
 
-Optional:  
+*Optional:*  
 1/2 cup nuts  
 1/2 cup chocolate chips  
 
