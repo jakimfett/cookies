@@ -14,7 +14,7 @@ Freshly ground black pepper
 4 medium-sized potatoes, diced  
 1/2 cup sliced sauteed mushrooms  
 
-Instructions:
+**Instructions:**  
 Using half the flour (3/4 cup) coat the pieces of rabbit, shaking off any excess.  
 Heat the oil and butter in a large heavy-bottomed saucepan, and brown the floured rabbit on all sides.  
 Add the celery, carrots, onions, salt, pepper, bay leaves, 6 cups water and red wine, and stew for about 2 hours.  
